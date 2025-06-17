@@ -1,4 +1,6 @@
 flea is my spirit animal! ╭∩╮₍ ˶•⤙•˶ ₎╭∩╮
-![1750124524222.gif](https://github.com/user-attachments/assets/f8e8b732-9aab-4c71-b347-c7bfb58e2a6f)
+![red-hot-chili-peppers (1).gif](https://github.com/user-attachments/assets/01af3443-028d-443d-98b8-dbdc822365ad)
+
+
 
 
